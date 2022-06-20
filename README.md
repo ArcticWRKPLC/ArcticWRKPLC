@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ArcticWRKPLC
+- 👀 I’m interested in learning computer science
+- 🌱 I’m currently learning introductory things
+- 💞️ I’m looking to collaborate on anything to learn
+- 📫 How to reach me smithlukas49@gmail.com
